@@ -1,0 +1,2 @@
+# sarfaraz
+SMPP stands for short messages peer to peer it helps you connect to your stakeholders form one location to anywhere in the country through SMPP server. SMPP connectivity helps you personalize your communication. It helps you send bulk verified and personalized SMS to your client to anywhere from SAUDI. Get the best SMPP service through SAUDI BULK SMS and connect to your stakeholders to anywhere away from Saudi.
